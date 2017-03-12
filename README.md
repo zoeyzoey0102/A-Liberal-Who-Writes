@@ -1,2 +1,1 @@
-## Write the wrong things <3
-
+### You know what it takes to become a REAL writer.
