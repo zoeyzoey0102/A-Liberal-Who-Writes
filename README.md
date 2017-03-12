@@ -1,2 +1,2 @@
-# I-Write
-Everything that I wrote and recorded
+## Write the wrong things <3
+
